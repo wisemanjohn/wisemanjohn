@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @wisemanjohn
+- 👀 I’m interested in wise things
